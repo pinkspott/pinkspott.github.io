@@ -1,5 +1,1 @@
-"# pinkspott.github.io" 
-"# pinkspott.github.io" 
-"# pinkspott.github.io" 
-"# pinkspott.github.io" 
-"# pinkspott.github.io" 
+My spirit's numb . . .
